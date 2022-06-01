@@ -1,1 +1,1 @@
-# Greatest-Page-Ever
+https://amefurikozo.github.io/Greatest-Page-Ever/
